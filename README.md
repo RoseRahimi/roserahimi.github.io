@@ -1,3 +1,3 @@
-# roserahimi.github.io
+# Rose Rahimi
 
-Bard college student
+**Bard college** student
